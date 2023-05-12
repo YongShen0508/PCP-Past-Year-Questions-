@@ -11,7 +11,10 @@ answers i did myself
 ### only question 5 0w0
 
 ## September 2021
-### Q1 until Q4 excluded Q2(a) and (b) 0u0
+### Q1 until Q4 excluded Q2(a) and (b) 0^0
 
 ## April 2021
-### Q1 until Q4 excluded Q2(a) and (b) 0u0
+### Q1 until Q4 excluded Q2(a) and (b) 0o0
+
+## September 2020
+### Q1 until Q4 excluded Q2(a) 0U0
