@@ -3,7 +3,7 @@ Past Year Questions
 Free to discuss on the answers ohh!!!
 
 ## September 2022
-### only questions 3(b), 4, 5
+### questions 3(b), 4, 5
 
 ## May 2022
 ### only question 5
